@@ -1,4 +1,4 @@
-Filmaciones con Drone, 4k, Fotogrametría, Jonas Pajari, Lima, Peru
+Programming, CAD/Inventor, Drone filming, Technical Support for Artists
 
 ## Copyright and License
 
